@@ -13,3 +13,14 @@
 11. The resonance beat upon his soul like a jackhammer, but the skull refused to cave. 
 
 ## Cringe and Grip the Substrate that is Slipping Through the Torn Bits.
+1. The structures were growing. Like a monument to sores, Karn’s code was engineered to self-improve. As the shadows flickered about the floating legs of the Reverend’s framework, Lee could almost make out sets of pale, familiar eyes attempting to pull him into its gaze. 
+2. Suddenly, the pain was eased. They both gasped in relief at first. As they began to catch their breath, the horror of their reality began to close in about them. 
+3. It knew that the pain was distracting them. 
+4. The release was to help them concentrate on the eyes that now targeted them directly. 
+5. It wanted them focused on its gaze.
+6. When they attempted to move from the path of the eye-shod veil of hate, they found that their feet were being absorbed by a green substrate culturing a fungal mycelia that held them fast.
+7. As they attempted to jerk themselves free, they noticed that invisible barriers like firm, curved membranes would bounce them back. 
+8. With each touch, the giant eyes were revealed briefly.
+9. Backing away, they disappeared once again from view. They soon noticed that they were approaching closer with each passing moment.
+10. Suddenly, the softball-sized pupils bore teeth and proceeded to gnaw and gnash. 
+11. With their wounds torn wide, tiny fibers began to slither forth from the black void of each eye as they attempted to view their victims from underneath the skin.
