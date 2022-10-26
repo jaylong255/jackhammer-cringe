@@ -24,3 +24,6 @@
 9. Backing away, they disappeared once again from view. They soon noticed that they were approaching closer with each passing moment.
 10. Suddenly, the softball-sized pupils bore teeth and proceeded to gnaw and gnash. 
 11. With their wounds torn wide, tiny fibers began to slither forth from the black void of each eye as they attempted to view their victims from underneath the skin.
+
+## Ripping at the Fabric - Isolate the Nerve Inference Network
+
