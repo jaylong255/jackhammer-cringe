@@ -1,4 +1,4 @@
-#Jackhammer Cringe v1.0.1
+# Jackhammer Cringe v1.0.1
 ## First Commit: The Bludgeoning Recurrence of the Deafening Source or… Sounds of the Melting Infected
 1. There was never time to make sense of how the ripping sounds would resonate with the echoes of the dull thump of the fatal beatings of the infected.
 2. Like a chorus of obfuscated doom, the countless tearings would form patterns that hacked deep into their consciousness like recursive searches until it tuned in on one deafening drone ringing in their ears.
