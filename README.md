@@ -12,3 +12,4 @@
 10. Freddie groaned in desperate agony. “Oh! Make it stop! Gyaaaaaaaargh!” Every phrase that the dark ones chanted into the abyss was like a ratchet strap wrapped around his skull. 
 11. The resonance beat upon his soul like a jackhammer, but the skull refused to cave. 
 
+## Cringe and Grip the Substrate that is Slipping Through the Torn Bits.
